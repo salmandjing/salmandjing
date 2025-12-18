@@ -32,7 +32,7 @@ I'm interested in projects involving:
 - Enterprise AI automation
 
 ## 📫 Connect
-- 💼 [LinkedIn](your-linkedin-url)
+- 💼 [LinkedIn](https://www.linkedin.com/feed/)
 - 📧 salmandjing@gmail.com
 
 ---
